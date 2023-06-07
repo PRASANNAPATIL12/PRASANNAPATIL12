@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Prasannagouda S Patiil</h1>
-<h3 align="center">Hey, I am studying Information Science Engineering at B.I.T Bangalore. Good at java, familiar with frontend Eager to uphold my skills to solve new challenges.</h3>
+<h4 align="center">I am a passionate and motivated person. I would like to innovate and enhance my existing knowledge by applying them in the relevant ﬁeld of technology. I look forward to be a part of this Organization that would give me a scope in developing my latent skills and creativity, while making signiﬁcant contribution towards Organization’s goals and objectives.</h4>
 
 - 🌱 I’m currently learning **React Native**
 
