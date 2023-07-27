@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **pspatil77888@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1gQWh2CJ6cRT9dghbsHOgYKEkRre2BEDC/edit?usp=sharing&ouid=114440346436092127977&rtpof=true&sd=true](https://docs.google.com/document/d/1gQWh2CJ6cRT9dghbsHOgYKEkRre2BEDC/edit?usp=sharing&ouid=114440346436092127977&rtpof=true&sd=true)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1gQWh2CJ6cRT9dghbsHOgYKEkRre2BEDC/edit?usp=sharing&ouid=114440346436092127977&rtpof=true&sd=true](https://linktr.ee/pspatil12)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
